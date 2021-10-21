@@ -1,2 +1,2 @@
 # Index_1
-Fotografía 
+Me llamo Guadalupe soy una persona amable atenta responsable y trabajadora
